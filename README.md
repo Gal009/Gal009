@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Gal009
 - 👀 I’m interested in Exiled plugins
 - 🌱 I’m currently learning C#
-- 💞️ I’m looking to collaborate on Yes.
+- 💞️ I’m looking to collaborate on aIUDASH8IUFEWJ3IUFH3IUFH3IURJ4IURJF3UFHNUJSDANJN
 - 📫 How to reach me: Gal.#3167
 
 <!---
